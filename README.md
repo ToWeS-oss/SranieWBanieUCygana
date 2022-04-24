@@ -1,0 +1,2 @@
+# SranieWBanieUCygana
+ POMÓŻ PANIE BOŻZE
